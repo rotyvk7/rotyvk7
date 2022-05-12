@@ -14,7 +14,7 @@
      🎭 26 anos, apaixonado por desenvolvimento, tecnologias, hardwares, animais e jogos.
      ✨ Observador e esforçado. 
  
-   Nunca é tarde para aprender e nunca é cedo para começar. 🚀
+   Nunca é tarde para aprender e nunca é cedo para começar. 🚀<br>
    Adoro leitura sobre tecnologias no geral, assistir uns documentários, filmes e animes. 😉
    </div>
   
